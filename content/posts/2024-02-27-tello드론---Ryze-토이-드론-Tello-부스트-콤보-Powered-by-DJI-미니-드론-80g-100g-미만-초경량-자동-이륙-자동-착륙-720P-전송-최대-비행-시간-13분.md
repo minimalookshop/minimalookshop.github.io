@@ -1,11 +1,10 @@
 ---
-title: "[tello드론] TOP10 추천 - [30~60대]  [] Ryze 토이 드론 Tello 부스트 콤보 Powered by DJI 미니 드론 80g 100g 미만 초경량 자동 이"
+title: '[tello드론] TOP10 추천 - [30~60대]  [] Ryze 토이 드론 Tello 부스트 콤보 Powered by DJI 미니 드론 80g 100g 미만 초경량 자동 이'
 date: 2024-02-27
-slug: "tello드론---Ryze-토이-드론-Tello-부스트-콤보-Powered-by-DJI-미니-드론-80g-100g-미만-초경량-자동-이륙-자동-착륙-720P-전송-최대-비행-시간-13분"
-author: Moon
+slug: 'tello드론---Ryze-토이-드론-Tello-부스트-콤보-Powered-by-DJI-미니-드론-80g-100g-미만-초경량-자동-이륙-자동-착륙-720P-전송-최대-비행-시간-13분'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ## Tello 드론: 완벽한 비행 시작
 

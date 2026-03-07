@@ -1,11 +1,10 @@
 ---
-title: "[쿠카tv] TOP10 추천 - [10대][남녀]  5년무상AS 프리미엄 구글TV 55인치 이스트라 쿠카 UC55QLED 퀀텀닷 안드로이드 스마트 UHD 중소기업 티비, 13"
+title: '[쿠카tv] TOP10 추천 - [10대][남녀]  5년무상AS 프리미엄 구글TV 55인치 이스트라 쿠카 UC55QLED 퀀텀닷 안드로이드 스마트 UHD 중소기업 티비, 13'
 date: 2024-03-01
-slug: "쿠카tv--5년무상AS-프리미엄-구글TV-55인치-이스트라-쿠카-UC55QLED-퀀텀닷-안드로이드-스마트-UHD-중소기업-티비-139cm-스탠드형-자가설치"
-author: Moon
+slug: '쿠카tv--5년무상AS-프리미엄-구글TV-55인치-이스트라-쿠카-UC55QLED-퀀텀닷-안드로이드-스마트-UHD-중소기업-티비-139cm-스탠드형-자가설치'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 **쿠카TV: 스마트한 스트리밍**
 

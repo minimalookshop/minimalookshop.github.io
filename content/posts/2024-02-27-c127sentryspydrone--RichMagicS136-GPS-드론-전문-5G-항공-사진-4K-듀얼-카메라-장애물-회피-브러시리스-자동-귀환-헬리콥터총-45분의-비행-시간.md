@@ -1,11 +1,10 @@
 ---
-title: "[c127sentryspydrone] TOP10 추천 - [30~60대]  RichMagic&S136 GPS 드론 전문 5G 항공 사진 4K 듀얼 카메라 장애물 회피 브러시리스 자동 귀환 헬리콥터("
+title: '[c127sentryspydrone] TOP10 추천 - [30~60대]  RichMagic&S136 GPS 드론 전문 5G 항공 사진 4K 듀얼 카메라 장애물 회피 브러시리스 자동 귀환 헬리콥터('
 date: 2024-02-27
-slug: "c127sentryspydrone--RichMagicS136-GPS-드론-전문-5G-항공-사진-4K-듀얼-카메라-장애물-회피-브러시리스-자동-귀환-헬리콥터총-45분의-비행-시간"
-author: Moon
+slug: 'c127sentryspydrone--RichMagicS136-GPS-드론-전문-5G-항공-사진-4K-듀얼-카메라-장애물-회피-브러시리스-자동-귀환-헬리콥터총-45분의-비행-시간'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ## C127 센트리 스파이 드론: 초소형 인공지능 감시 드론
 

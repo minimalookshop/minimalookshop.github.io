@@ -1,11 +1,10 @@
 ---
-title: "75qned80kra  [10~20대 여성추천]  LG전자 86인치(218cm) 나노셀 울트라HD 4K 스마트 NanoCell LED IPS TV 86NANO75 넷플릭스  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '75qned80kra  [10~20대 여성추천]  LG전자 86인치(218cm) 나노셀 울트라HD 4K 스마트 NanoCell LED IPS TV 86NANO75 넷플릭스  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-01
-slug: "75qned80kra--LG전자-86인치218cm-나노셀-울트라HD-4K-스마트-NanoCell-LED-IPS-TV-86NANO75-넷플릭스-유튜브-86인치-TV-지방벽걸이설치-방문설치-"
-author: Moon
+slug: '75qned80kra--LG전자-86인치218cm-나노셀-울트라HD-4K-스마트-NanoCell-LED-IPS-TV-86NANO75-넷플릭스-유튜브-86인치-TV-지방벽걸이설치-방문설치-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 **'75qned80kra' OLED TV: 극상의 홈 엔터테인먼트**
 

@@ -1,11 +1,10 @@
 ---
-title: "[x26배터리] TOP10 추천 - [30~60대]  RC카 배터리 4.8V 6V 7.2V AA 고용량 2500mAh Ni-MH 니켈수소 JST-2P 오프로드RC카 포크레인RC"
+title: '[x26배터리] TOP10 추천 - [30~60대]  RC카 배터리 4.8V 6V 7.2V AA 고용량 2500mAh Ni-MH 니켈수소 JST-2P 오프로드RC카 포크레인RC'
 date: 2024-02-27
-slug: "x26배터리--RC카-배터리-48V-6V-72V-AA-고용량-2500mAh-NiMH-니켈수소-JST2P-오프로드RC카-포크레인RC카-몬스터트럭RC카-충전건전지-충전배터리"
-author: Moon
+slug: 'x26배터리--RC카-배터리-48V-6V-72V-AA-고용량-2500mAh-NiMH-니켈수소-JST2P-오프로드RC카-포크레인RC카-몬스터트럭RC카-충전건전지-충전배터리'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ### x26배터리: 더 이상 전원고민 없이 자유로운 모바일 생활을 즐기세요
 

@@ -1,11 +1,10 @@
 ---
-title: "50ur8250kna.akrg  [10~20대 여성추천]  [포토상품평이벤트] 삼성 비지니스 TV 4K UHD 50인치 125cm LH50BECHLGFXKR 폐가전 무료 회수 설치  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '50ur8250kna.akrg  [10~20대 여성추천]  [포토상품평이벤트] 삼성 비지니스 TV 4K UHD 50인치 125cm LH50BECHLGFXKR 폐가전 무료 회수 설치  장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-01
-slug: "50ur8250knaakrg--포토상품평이벤트-삼성-비지니스-TV-4K-UHD-50인치-125cm-LH50BECHLGFXKR-폐가전-무료-회수-설치-지원-LH50BECHLGFXKR-스탠드설치"
-author: Moon
+slug: '50ur8250knaakrg--포토상품평이벤트-삼성-비지니스-TV-4K-UHD-50인치-125cm-LH50BECHLGFXKR-폐가전-무료-회수-설치-지원-LH50BECHLGFXKR-스탠드설치'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 **50ur8250kna.akrg: 최고의 편안함과 내구성**
 

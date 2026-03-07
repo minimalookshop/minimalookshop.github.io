@@ -1,11 +1,10 @@
 ---
-title: "삼성85인치tv스마트사이니지1등급be85c-huhd쇼핑하는니체  [10~20대 여성추천]  삼성전자 4K UHD Neo QLED TV QNB85, 214cm(85인치), KQ85QNB85AFXKR, 스탠드형, 방문 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '삼성85인치tv스마트사이니지1등급be85c-huhd쇼핑하는니체  [10~20대 여성추천]  삼성전자 4K UHD Neo QLED TV QNB85, 214cm(85인치), KQ85QNB85AFXKR, 스탠드형, 방문 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-01
-slug: "삼성85인치tv스마트사이니지1등급be85chuhd쇼핑하는니체--삼성전자-4K-UHD-Neo-QLED-TV-QNB85-214cm85인치-KQ85QNB85AFXKR-스탠드형-방문설치-"
-author: Moon
+slug: '삼성85인치tv스마트사이니지1등급be85chuhd쇼핑하는니체--삼성전자-4K-UHD-Neo-QLED-TV-QNB85-214cm85인치-KQ85QNB85AFXKR-스탠드형-방문설치-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 **삼성 85인치 스마트 사할지**
 

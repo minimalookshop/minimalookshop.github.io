@@ -1,11 +1,10 @@
 ---
-title: "줄자독일 추천 TOP5 구매 가이드"
-description: "안녕하세요, 섬세한 작업을 즐기시는 여러분"
+title: '줄자독일 추천 TOP5 구매 가이드'
+description: '안녕하세요, 섬세한 작업을 즐기시는 여러분'
 date: 2026-02-24T17:56:00+09:00
-author: Moon
+author: 'Moon'
 categories: [shopping]
 tags: ["Top5", "shopping", "줄자독일", "독일제줄자", "Hoechstmass", "똑딱이줄자", "칼라줄자", "재봉도구", "정밀측정"]
----
 
 > 💦 이 포스팅은 파트너스 활동을 통해 일정액의 수수료를 제공받습니다. 💦
 

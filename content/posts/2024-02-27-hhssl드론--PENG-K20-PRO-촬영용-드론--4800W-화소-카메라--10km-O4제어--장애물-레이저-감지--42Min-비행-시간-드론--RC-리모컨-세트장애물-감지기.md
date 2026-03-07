@@ -1,11 +1,10 @@
 ---
-title: "[hhssl드론] TOP10 추천 - [30~60대]  PENG K20 PRO 촬영용 드론 / 4800W 화소 카메라 / 10km O4+제어 / 장애물 레이저 감지 / 42Min"
+title: '[hhssl드론] TOP10 추천 - [30~60대]  PENG K20 PRO 촬영용 드론 / 4800W 화소 카메라 / 10km O4+제어 / 장애물 레이저 감지 / 42Min'
 date: 2024-02-27
-slug: "hhssl드론--PENG-K20-PRO-촬영용-드론--4800W-화소-카메라--10km-O4제어--장애물-레이저-감지--42Min-비행-시간-드론--RC-리모컨-세트장애물-감지기"
-author: Moon
+slug: 'hhssl드론--PENG-K20-PRO-촬영용-드론--4800W-화소-카메라--10km-O4제어--장애물-레이저-감지--42Min-비행-시간-드론--RC-리모컨-세트장애물-감지기'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 # hhssl드론 상품 정보
 

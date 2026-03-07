@@ -1,11 +1,10 @@
 ---
-title: "86qned85kra  [10~20대 여성추천]  LG전자 75인치 LED TV 퀀텀닷 나노셀 최신형 울트라HD UHD 4K 스마트 유튜브 디지니 미러링 75QNED80UQ 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '86qned85kra  [10~20대 여성추천]  LG전자 75인치 LED TV 퀀텀닷 나노셀 최신형 울트라HD UHD 4K 스마트 유튜브 디지니 미러링 75QNED80UQ 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-01
-slug: "86qned85kra--LG전자-75인치-LED-TV-퀀텀닷-나노셀-최신형-울트라HD-UHD-4K-스마트-유튜브-디지니-미러링-75QNED80UQA-서울경기권기사방문"
-author: Moon
+slug: '86qned85kra--LG전자-75인치-LED-TV-퀀텀닷-나노셀-최신형-울트라HD-UHD-4K-스마트-유튜브-디지니-미러링-75QNED80UQA-서울경기권기사방문'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ## '86qned85kra' OLED TV: 놀라운 시청 경험을 위한 필수품
 

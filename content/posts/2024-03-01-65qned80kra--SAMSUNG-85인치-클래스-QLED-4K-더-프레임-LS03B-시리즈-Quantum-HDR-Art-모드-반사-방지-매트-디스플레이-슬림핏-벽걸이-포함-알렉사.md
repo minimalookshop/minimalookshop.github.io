@@ -1,11 +1,10 @@
 ---
-title: "65qned80kra  [10~20대 여성추천]  SAMSUNG 85인치 클래스 QLED 4K 더 프레임 LS03B 시리즈 Quantum HDR Art 모드 반사 방지 매트 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: '65qned80kra  [10~20대 여성추천]  SAMSUNG 85인치 클래스 QLED 4K 더 프레임 LS03B 시리즈 Quantum HDR Art 모드 반사 방지 매트 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-01
-slug: "65qned80kra--SAMSUNG-85인치-클래스-QLED-4K-더-프레임-LS03B-시리즈-Quantum-HDR-Art-모드-반사-방지-매트-디스플레이-슬림핏-벽걸이-포함-알렉사"
-author: Moon
+slug: '65qned80kra--SAMSUNG-85인치-클래스-QLED-4K-더-프레임-LS03B-시리즈-Quantum-HDR-Art-모드-반사-방지-매트-디스플레이-슬림핏-벽걸이-포함-알렉사'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ## 65QNED80KRA: 뛰어난 시청 경험을 위한 최고의 선택
 

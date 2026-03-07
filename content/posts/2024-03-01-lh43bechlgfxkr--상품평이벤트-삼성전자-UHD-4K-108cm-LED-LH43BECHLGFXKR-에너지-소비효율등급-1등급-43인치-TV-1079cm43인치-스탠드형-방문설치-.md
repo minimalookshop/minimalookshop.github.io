@@ -1,11 +1,10 @@
 ---
-title: "lh43bechlgfxkr  [10~20대 여성추천]  [상품평이벤트] 삼성전자 UHD 4K 108cm LED LH43BECHLGFXKR 에너지 소비효율등급 1등급 43인치 TV 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+title: 'lh43bechlgfxkr  [10~20대 여성추천]  [상품평이벤트] 삼성전자 UHD 4K 108cm LED LH43BECHLGFXKR 에너지 소비효율등급 1등급 43인치 TV 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-03-01
-slug: "lh43bechlgfxkr--상품평이벤트-삼성전자-UHD-4K-108cm-LED-LH43BECHLGFXKR-에너지-소비효율등급-1등급-43인치-TV-1079cm43인치-스탠드형-방문설치-"
-author: Moon
+slug: 'lh43bechlgfxkr--상품평이벤트-삼성전자-UHD-4K-108cm-LED-LH43BECHLGFXKR-에너지-소비효율등급-1등급-43인치-TV-1079cm43인치-스탠드형-방문설치-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ## 'lh43bechlgfxkr' 스마트 TV: 가성비 뛰어난 엔터테인먼트 경험
 

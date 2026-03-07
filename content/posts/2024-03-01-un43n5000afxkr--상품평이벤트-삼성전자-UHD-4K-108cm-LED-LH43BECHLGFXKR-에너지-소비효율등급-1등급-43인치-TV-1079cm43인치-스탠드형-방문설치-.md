@@ -1,11 +1,10 @@
 ---
-title: "[un43n5000afxkr] TOP10 추천 - [10대][남녀]  [상품평이벤트] 삼성전자 UHD 4K 108cm LED LH43BECHLGFXKR 에너지 소비효율등급 1등급 43인치 TV"
+title: '[un43n5000afxkr] TOP10 추천 - [10대][남녀]  [상품평이벤트] 삼성전자 UHD 4K 108cm LED LH43BECHLGFXKR 에너지 소비효율등급 1등급 43인치 TV'
 date: 2024-03-01
-slug: "un43n5000afxkr--상품평이벤트-삼성전자-UHD-4K-108cm-LED-LH43BECHLGFXKR-에너지-소비효율등급-1등급-43인치-TV-1079cm43인치-스탠드형-방문설치-"
-author: Moon
+slug: 'un43n5000afxkr--상품평이벤트-삼성전자-UHD-4K-108cm-LED-LH43BECHLGFXKR-에너지-소비효율등급-1등급-43인치-TV-1079cm43인치-스탠드형-방문설치-'
+author: 'Moon'
 categories: [shopping]
 tags: [Top10, shopping]
----
 
 ## 삼성 UN43N5000AFXKR: 저렴한 가격에 훌륭한 성능의 43인치 TV
 
