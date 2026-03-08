@@ -3,8 +3,9 @@ title: '43ur9300kna  [10~20대 여성추천]  LG전자 86인치(218cm) 나노셀
 date: 2024-03-01
 slug: '43ur9300kna--LG전자-86인치218cm-나노셀-울트라HD-4K-스마트-NanoCell-LED-IPS-TV-86NANO75-넷플릭스-유튜브-86인치-TV-지방스탠드설치-방문설치-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping]
+categories: ['shopping']
+tags: ['Top10', 'shopping']
+---
 
 **43ur9300kna: 아름다움과 기능이 조화로운 LG 43인치 모니터**
 

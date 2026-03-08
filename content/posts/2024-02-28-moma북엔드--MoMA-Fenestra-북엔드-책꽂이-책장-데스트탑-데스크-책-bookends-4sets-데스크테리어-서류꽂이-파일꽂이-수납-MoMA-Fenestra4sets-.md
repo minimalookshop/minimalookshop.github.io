@@ -3,8 +3,9 @@ title: '[moma북엔드] TOP10 추천 - [10대][남녀]  MoMA Fenestra 북엔드 
 date: 2024-02-28
 slug: 'moma북엔드--MoMA-Fenestra-북엔드-책꽂이-책장-데스트탑-데스크-책-bookends-4sets-데스크테리어-서류꽂이-파일꽂이-수납-MoMA-Fenestra4sets-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping]
+categories: ['shopping']
+tags: ['Top10', 'shopping']
+---
 
 **모마의 걸작을 책장으로**
 

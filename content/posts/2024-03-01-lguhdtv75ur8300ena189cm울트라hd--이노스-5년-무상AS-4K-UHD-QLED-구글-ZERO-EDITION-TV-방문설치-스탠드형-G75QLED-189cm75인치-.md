@@ -3,8 +3,9 @@ title: 'lguhdtv75ur8300ena189cm울트라hd  [10~20대 여성추천]  이노스 5
 date: 2024-03-01
 slug: 'lguhdtv75ur8300ena189cm울트라hd--이노스-5년-무상AS-4K-UHD-QLED-구글-ZERO-EDITION-TV-방문설치-스탠드형-G75QLED-189cm75인치-'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping]
+categories: ['shopping']
+tags: ['Top10', 'shopping']
+---
 
 **울트라 HD 경험을 위한 LG UHDTV 75UR8300**
 

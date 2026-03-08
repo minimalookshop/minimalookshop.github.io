@@ -1,10 +1,10 @@
-﻿---
-title: "c61503  |삼성 CLX 6240FXK 정품토너 파랑 5000매 CLP605NDK CLP605NDKG CLP610N CLP610ND CL 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+---
+title: 'c61503  |삼성 CLX 6240FXK 정품토너 파랑 5000매 CLP605NDK CLP605NDKG CLP610N CLP610ND CL 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-05-14
-slug: "c61503-삼성-CLX-6240FXK-정품토너-파랑-5000매-CLP605NDK-CLP605NDKG-CLP610N-CLP610ND-CLP611NDK-CLP611NDKG-CLP612NDK-1개-컬러"
-author: Moon
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, c61503]
+slug: 'c61503-삼성-CLX-6240FXK-정품토너-파랑-5000매-CLP605NDK-CLP605NDKG-CLP610N-CLP610ND-CLP611NDK-CLP611NDKG-CLP612NDK-1개-컬러'
+author: 'Moon'
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', 'c61503']
 ---
 
 <p data-nosnippet>💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받습니다.</p>

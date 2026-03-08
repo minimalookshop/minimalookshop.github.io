@@ -3,8 +3,9 @@ title: '작업 효율 2배! MELOTOUGH 줄자/드릴 홀더, 후회 없는 선택
 description: 'MELOTOUGH 줄자 홀더- 작업 효율을 한 단계 끌어올릴 비밀 병기'
 date: 2026-02-24T19:01:00+09:00
 author: 'Moon'
-categories: [shopping]
-tags: ["Top5", "shopping", "패스툴줄자", "줄자 홀더", "드릴 홀더", "공구 벨트", "작업 효율", "MELOTOUGH", "공구 정리"]
+categories: ['shopping']
+tags: ['Top5', 'shopping', '패스툴줄자', '줄자 홀더', '드릴 홀더', '공구 벨트', '작업 효율', 'MELOTOUGH', '공구 정리']
+---
 
 > 💦 이 포스팅은 파트너스 활동을 통해 일정액의 수수료를 제공받습니다. 💦
 

@@ -3,8 +3,9 @@ title: 'ku75uc7050fxkr  [10~20대 여성추천]  LG전자 75인치 LED TV 퀀텀
 date: 2024-03-01
 slug: 'ku75uc7050fxkr--LG전자-75인치-LED-TV-퀀텀닷-나노셀-최신형-울트라HD-UHD-4K-스마트-유튜브-디지니-미러링-75QNED80UQA-서울경기권기사방문'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping]
+categories: ['shopping']
+tags: ['Top10', 'shopping']
+---
 
 ## LG ku75uc7050fxkr: 뛰어난 4K HDR TV의 세계로
 

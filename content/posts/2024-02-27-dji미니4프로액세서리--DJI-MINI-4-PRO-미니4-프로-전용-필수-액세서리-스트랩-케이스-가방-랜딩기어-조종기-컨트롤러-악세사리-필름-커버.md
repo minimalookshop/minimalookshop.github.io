@@ -3,8 +3,9 @@ title: '[dji미니4프로액세서리] TOP10 추천 - [30~60대]  DJI MINI 4 PRO
 date: 2024-02-27
 slug: 'dji미니4프로액세서리--DJI-MINI-4-PRO-미니4-프로-전용-필수-액세서리-스트랩-케이스-가방-랜딩기어-조종기-컨트롤러-악세사리-필름-커버'
 author: 'Moon'
-categories: [shopping]
-tags: [Top10, shopping]
+categories: ['shopping']
+tags: ['Top10', 'shopping']
+---
 
 **DJI Mini 4 Pro를 더욱 편리하게**
 
